@@ -1,1 +1,0 @@
-# Max-GLB-last-course
